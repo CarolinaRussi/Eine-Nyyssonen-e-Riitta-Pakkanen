@@ -3,14 +3,26 @@ Canal Colecionador de Ossos
 
 # Fontes e Referências da matéria:
 
-https://en.wikipedia.org/wiki/Murder_of_Arlis_Perry
+https://www.mtvuutiset.fi/artikkeli/riitta-23-ja-eine-21-ovat-yha-vailla-oikeutta-poliisi-saa-vielakin-vinkkeja-verisesta-kaksoismurhasta-jonka-paaepailty-riisti-itseltaan-hengen-puoli-vuosisataa-sitten/8202088
 
-https://www.grunge.com/460137/the-tragic-murder-of-stanford-student-arlis-perry/
+http://tulilahdenhenkiriokset.blogspot.com/search/label/Riitta%20Pakkanen
 
-https://br.aeplay.tv/noticias/policia-desvenda-crime-praticado-ha-44-anos-e-acusado-se-mata-minutos-antes-de-ser-preso
+https://seura.fi/ilmiot/historia/tulilahden-kaksoismurha-ei-selvinnyt-paaepailty-hirttaytyi-vankisellissaan/
 
-https://www.oxygen.com/true-crime-buzz/how-is-murder-of-arlis-perry-connected-to-son-of-sam-case
+https://www.wikipe.wiki/wiki/fi/Tulilahden_kaksoismurha
 
-https://www.mercurynews.com/2018/06/28/sheriff-suspect-in-infamous-1974-stanford-chapel-murder-shoots-self-as-detectives-close-in/
+https://kissesvilma.blogspot.com/2019/03/true-crime-tulilahden-selvittamaton.html
 
-https://stanforddaily.com/2014/10/10/murder-at-memorial-church-remains-unsolved-40-years-later/
+https://moonlightmurder.tumblr.com/post/627990802527846400/double-murder-in-tulilahti-camping-site
+
+https://medium.com/the-mystery-box/unsolved-mysteries-the-double-murder-at-the-tulilahti-campsite-60c18960c12b
+
+https://historyofyesterday.com/two-young-women-killed-whilst-camping-in-finland-38a52994a904
+
+https://fi.wikipedia.org/wiki/Tulilahden_kaksoismurha
+
+https://www.iltalehti.fi/kotimaa/a/e05c6099-a7c3-47bd-b8ed-41b2512af4d2
+
+https://www.is.fi/kotimaa/art-2000006161073.html
+
+https://finnishcrimestory.tumblr.com/post/627909592196743168/double-murder-in-tulilahti-camping-site
